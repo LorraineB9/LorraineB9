@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @LorraineB9.
+- 👋 Hi, I’m @Lorraine.
 - 👀 I’m a genetic genealogist.
 - 🌱 I’m currently learning how to use AI to improve my research methods.
 - 💞️ I’m looking to collaborate on anything related to AI or genetic genealogy.
