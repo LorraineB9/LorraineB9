@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything related to AI or genetic genealogy.
 - 📫 How to reach me: lorraine@blantonservices.com.
 - 😄 Pronouns: She/her.
-- ⚡ Fun fact: I have over 40 fruit tree in my small Southern California yard.
+- ⚡ Fun fact: I have over 40 fruit trees in my small Southern California yard.
 
 <!---
 LorraineB9/LorraineB9 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
